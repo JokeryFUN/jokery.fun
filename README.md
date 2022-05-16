@@ -1,1 +1,1 @@
-# jokery.fun
+White Power
